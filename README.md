@@ -1,1 +1,1 @@
-- The name is GiantZer0. Im a student trying to learn new code languages and ways to write them. Any sort of help\tips will be taken greatly.
+
